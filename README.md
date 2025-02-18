@@ -1,1 +1,1 @@
-# yh-for-here-put-Swingcalculator-U23AUE1015
+# Swingcalculator-U23AUE1015
